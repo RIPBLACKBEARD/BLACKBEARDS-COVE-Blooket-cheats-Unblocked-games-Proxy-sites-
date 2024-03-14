@@ -1,2 +1,4 @@
-ILL BE ADDING MORE SOON AND IF U GUYS WANT MINECRAFT MODS I GOT TONS
-ADDING MORE PROXIES SOON
+We have these so far:
+Unblocked game sites.
+Games we made ourselves.
+Web Proxies (Site Unblockers)
